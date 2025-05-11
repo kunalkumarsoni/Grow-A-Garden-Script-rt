@@ -1,1 +1,1 @@
-# Grow-A-Garden-Script-rt
+- [![Download Now](https://img.shields.io/badge/Download%20Here-Full%20version-red)](Link228)
